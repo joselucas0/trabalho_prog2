@@ -1,2 +1,1 @@
-José Lucas Aparecido Rocha
-Vinicius Wagner da Silva
+José Lucas Aparecido Rocha e Vinicius Wagner da Silva
